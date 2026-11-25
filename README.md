@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vatsal-Rajput
 - 👀 I’m interested in Data Science and Machine Learning
-- 📫 How to reach me vatsalr22@iitk.ac.in
+- 📫 How to reach me rajputchinu028@gmail.com
 - 😄 Pronouns: He/Him
   
 
